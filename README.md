@@ -83,7 +83,8 @@ alt text
 
 
 ![Screenshot 2024-12-05 083003](https://github.com/user-attachments/assets/aef85e0c-b9c7-4148-b208-f9600453e760)
-![Screenshot 2024-12-07 154244](https://github.com/user-attachments/assets/6b29c2f1-d1c9-414d-a89f-d51794e98493)
+![Screenshot 2024-12-07 161350](https://github.com/user-attachments/assets/aa41bdc0-8473-4c43-9fb8-562d249e34a0)
+
 
 
 
